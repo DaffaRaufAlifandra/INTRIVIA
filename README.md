@@ -10,3 +10,6 @@ Intivia memberikan saya banyak wawasan baru mengenai dunia digital dan ilmu komp
 
 ## Kesan Pesan Cluster 5 Sejauh Ini 
 Saya pribadi senang berkenalan dengan seluruh anggota cluster 5. Merkea semua memiliki ciri khas, kepribadian, dan wawasan yang unik dan beragam, sehingga membuka pandangan saya mengenai dunia perkuliahan di FILKOm UB sini.
+
+## Harapan Kuliah 
+Saya harap dapat mempelajari ilmu yang bermafaat sebanyak mungkin, dan menghasilkan portofolio yang baik untuk menghadapi dunia kerja kelak, serta lulus dengan predikat terbaik. 
